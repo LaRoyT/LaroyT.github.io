@@ -1,2 +1,2 @@
 # LaroyT.github.io
-*__LaRoy Thompson__*
+## ***LaRoy Thompson***
